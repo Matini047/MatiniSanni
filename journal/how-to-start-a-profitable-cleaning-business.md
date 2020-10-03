@@ -2,7 +2,7 @@
 date: 2020-10-03
 author: Nichlas W. Andersen
 title: How to start a profitable cleaning business.
-excerpt: 13 Secrets for Making Your Cleaning Business a Success
+excerpt: How to start a profitable cleaning business.
 
 ---
 The cleaning industry has two primary market groups: consumer and commercial. The consumer arena consists primarily of residential maid services, along with carpet cleaners, window cleaners and a variety of other cleaning services required on a less-frequent basis. The commercial arena is dominated by janitorial services, which typically provide a wider range of services than maid services, along with other cleaning companies, such as carpet and window cleaners that target businesses rather than individual consumers. While it's recommended that you decide on a niche and concentrate on building a business that will serve your chosen market, it's entirely realistic to expect to be able to serve multiple markets successfully.
